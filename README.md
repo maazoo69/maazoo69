@@ -21,7 +21,6 @@ Contact Me
 If you have any questions,suggestions , or just want to connect, feel free to reach out to me. You can contact me via:
 
 Email: [maazs0468@gmail.com]
-Twitter:[https://twitter.com/Mazayyyyy]
 I'm always open to new opportunities and exciting projects, so don't hesitate to get in touch!
 
 Thank you for visiting my GitHub profile. Happy coding! 🚀
